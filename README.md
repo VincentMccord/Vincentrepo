@@ -1,1 +1,1 @@
-The Atlantic slave trade reached its peak in the 18th century, with millions of Africans forcibly transported to the Americas to work on plantations and in mines, contributing to economic growth in European colonies.
+The growth of colonial economies in the Americas was driven by cash crops such as sugar, tobacco, cotton, and indigo, which were cultivated using slave labor on large plantations.
