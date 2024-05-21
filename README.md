@@ -1,1 +1,1 @@
-The growth of colonial economies in the Americas was driven by cash crops such as sugar, tobacco, cotton, and indigo, which were cultivated using slave labor on large plantations.
+The 18th century saw the emergence of the Industrial Revolution, beginning in Britain and later spreading to other parts of Europe and the world, leading to profound changes in economic production and society.
