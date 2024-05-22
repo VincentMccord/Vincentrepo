@@ -1,1 +1,1 @@
-The 18th century saw the emergence of the Industrial Revolution, beginning in Britain and later spreading to other parts of Europe and the world, leading to profound changes in economic production and society.
+Silver played a crucial role in the global economy of the 17th century, with vast quantities of silver mined in Spanish colonies in the Americas and traded extensively in global markets.
