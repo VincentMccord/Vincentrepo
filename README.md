@@ -1,1 +1,1 @@
-The Bank of England, founded in 1694, became a central institution in the British economy, issuing currency, managing government debt, and facilitating commercial banking operations.
+The Opium Wars between China and Britain in the mid-19th century, sparked by British attempts to expand the opium trade, resulted in China ceding Hong Kong and opening additional ports to foreign trade.
