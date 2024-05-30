@@ -1,1 +1,1 @@
-The Opium Wars between China and Britain in the mid-19th century, sparked by British attempts to expand the opium trade, resulted in China ceding Hong Kong and opening additional ports to foreign trade.
+The Treaty of Paris, signed in 1763, marked the end of the Seven Years' War and reshaped the global balance of power, leading to territorial realignments and trade agreements.
