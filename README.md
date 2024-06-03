@@ -1,1 +1,1 @@
-The transatlantic slave trade, which had been abolished by many European countries by the early 19th century, was replaced by the system of indentured labor, particularly in the British Empire's colonies.
+European colonial powers, such as Spain, Portugal, England, France, and the Netherlands, competed for control of overseas territories and resources to bolster their economies.
