@@ -1,1 +1,1 @@
-The mechanization of agriculture in the 19th century, including the invention of the reaper and other farm machinery, increased agricultural productivity and led to the consolidation of landholdings.
+The rise of imperialism in the 19th century was driven by economic motives, including the search for raw materials, markets, and investment opportunities in overseas territories.
