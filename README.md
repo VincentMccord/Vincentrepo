@@ -1,1 +1,1 @@
-The Atlantic slave trade flourished in the 17th century, with millions of Africans forcibly transported to the Americas to work on plantations, mines, and other labor-intensive industries.
+The rise of protectionism in the 19th century, including tariffs, quotas, and trade barriers, aimed to protect domestic industries from foreign competition but also led to trade conflicts and economic tensions between nations.
