@@ -1,1 +1,1 @@
-The rise of protectionism in the 19th century, including tariffs, quotas, and trade barriers, aimed to protect domestic industries from foreign competition but also led to trade conflicts and economic tensions between nations.
+The Industrial Revolution led to the rise of urbanization, with millions of people migrating from rural areas to cities in search of employment in factories and other industrial enterprises.
