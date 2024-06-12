@@ -1,1 +1,1 @@
-The Industrial Revolution led to the rise of urbanization, with millions of people migrating from rural areas to cities in search of employment in factories and other industrial enterprises.
+The Dutch Republic emerged as a dominant economic power in the 17th century, with Amsterdam becoming a leading financial center and hub for international trade.
