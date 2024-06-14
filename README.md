@@ -1,1 +1,1 @@
-The mechanization of agriculture in the 19th century, including the invention of the reaper and other farm machinery, increased agricultural productivity and led to the consolidation of landholdings.
+The rise of capitalism in the 17th century was accompanied by the emergence of modern banking practices, including the issuance of paper money, letters of credit, and banking services.
