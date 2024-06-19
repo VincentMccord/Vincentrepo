@@ -1,1 +1,1 @@
-The rise of cottage industries and early forms of industrialization in Europe during the 17th century laid the groundwork for the Industrial Revolution of the 18th and 19th centuries.
+The Industrial Revolution led to the rise of factory-based production, the mechanization of agriculture, and the growth of urban populations, transforming social and economic structures worldwide.
