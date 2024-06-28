@@ -1,1 +1,1 @@
-The enclosure movement in England during the 17th century led to the privatization of common lands, forcing many peasants off the land and into wage labor in burgeoning industries.
+The practice of mercantilist policies, such as tariffs, trade monopolies, and subsidies, aimed to protect domestic industries and promote exports while limiting imports.
