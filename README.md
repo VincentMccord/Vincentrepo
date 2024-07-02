@@ -1,1 +1,1 @@
-The global economy of the 19th century was increasingly interconnected through trade networks, financial markets, and the exchange of goods, capital, and labor across borders.
+The War of Spanish Succession, fought from 1701 to 1714, disrupted global trade and led to territorial realignments in Europe and the Americas, impacting economic stability and growth.
