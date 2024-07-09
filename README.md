@@ -1,1 +1,1 @@
-The spread of capitalism in the 19th century was accompanied by social upheaval, including labor strikes, protests, and the rise of socialist and labor movements advocating for workers' rights and social reforms.
+The rise of coffeehouses and salons in Europe during the 18th century provided spaces for intellectual exchange, networking, and business transactions, influencing economic and cultural trends.
