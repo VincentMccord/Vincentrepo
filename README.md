@@ -1,1 +1,1 @@
-The rise of multinational corporations in the 19th century, such as Standard Oil, Carnegie Steel, and the British East India Company, wielded significant economic and political influence on a global scale.
+The 17th century saw the rise of mercantilism, an economic theory that emphasized national wealth accumulation through exports and colonial expansion.
