@@ -1,1 +1,1 @@
-The global economy of the 19th century was characterized by the expansion of colonial empires, with European powers competing for territorial control, resources, and markets in Africa, Asia, and the Americas.
+The rise of cottage industries and early forms of industrialization in Europe during the 17th century laid the groundwork for the Industrial Revolution of the 18th and 19th centuries.
